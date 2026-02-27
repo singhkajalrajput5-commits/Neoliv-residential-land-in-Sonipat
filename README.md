@@ -1,2 +1,3 @@
 # Neoliv-residential-land-in-Sonipat
-Neoliv residential land in Sonipat
+neolivgradpark describes a premium residential plotted land project in Sector 70, Kundli-Sonipat (Haryana) spread across about 20 acres. This well-planned development offers freehold residential plots with a peaceful, green environment ideal for building custom homes. Strategically located with strong connectivity to Delhi NCR via major highways and the KMP Expressway, the project features wide internal roads, open green spaces including an urban forest, and quality infrastructure backed by RERA approval. Designed for comfort, convenience and future growth, neolivgradpark plots appeal to homebuyers and investors seeking a lifestyle blend of nature and modern living in one of the fastest-growing regions near the national capital.
+https://neolivgrandpark.co/ 
